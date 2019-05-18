@@ -1,1 +1,1 @@
-# AllFather
+# Odin is a fictional character appearing in American comic books published by Marvel Comics. The character is first mentioned in Journey into Mystery #85 (Oct. 1962), then first appears in Journey into Mystery #86 (Nov. 1962), and was adapted from the Odin of Norse mythology by Stan Lee and Jack Kirby. He is the father of Thor and former king of Asgard. Lorem Ipsum.
